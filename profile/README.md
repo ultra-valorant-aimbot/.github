@@ -2,6 +2,8 @@
 This improvement immediately targets your adversaries, simplifying the process of achieving more effective headshots.
 
 
+[![989898](https://github.com/user-attachments/assets/6b25ec62-45e7-4940-9ea6-74b6213d5769)](https://y.gy/voloraant-ultra-aimbot)
+
 
 ### The Pinnacle of Competitive Dominance in Valorant
 
